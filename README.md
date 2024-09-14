@@ -12,7 +12,7 @@
 
 - 💬 Ask me about ****Minecraft****
 
-- 📫 How to reach me **avinash-nexgen@gmail.com@gmail.com**
+- 📫 How to reach me **avinash-nexgen@gmail.com**
 
 - ⚡ Fun fact **I am a Minecraft player .**
 
