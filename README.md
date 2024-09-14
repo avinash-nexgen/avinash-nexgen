@@ -1,0 +1,6 @@
+- 👋 Hi, I’m Avinash Sharma 
+- 👀 I’m interested in Coding 
+- 🌱 I’m currently learning Python, Java , C++
+- 💞️ I’m a Student.
+- 📫 How to reach me @avinashs.nexgen@gmail.com
+- ⚡ Fun fact: I am a Minecraft player..
